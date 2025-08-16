@@ -1,4 +1,4 @@
-Collective name: Lizzie
+Collective name: Lizzie or Scott, either work!!
 Host: Tango
 Bodily 16 - He/They mostly 
 
