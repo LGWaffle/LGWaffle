@@ -13,6 +13,6 @@ We are OKAY with whispers to crown our skins or talk to us, we might not see all
 
 
 some of our fandoms include Silent life, The life series/Hermitcraft, empires, Crk, Epic the musical, helluva boss and others,
-we also really enjoy cosplay and drawing !!
+we also really enjoy cosplay and drawing !! Fave ls members are Scott and Grian :)
 
 uhhh not sure what else to put, will be updated over time !!
