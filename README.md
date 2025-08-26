@@ -1,5 +1,5 @@
 Collective name: Lizzie or Scott, either work!!
-Host: Tango
+
 Bodily 16 - He/They mostly 
 
 we are a system, we ask that you please be respectful when interacting with us, thanks !!
