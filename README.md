@@ -12,7 +12,7 @@ if we have a "Sys" tag next to our pony then that would indicate who is fronting
 We are OKAY with whispers to crown our skins or talk to us, we might not see all of them immeditely but we do try our best in that regard 
 
 
-some of our fandoms include Silent life, The life series/Hermitcraft, empires, Crk, Epic the musical, helluva boss and others,
+some of our fandoms include Silent life, The life series/Hermitcraft, State smp, empires, Crk, Epic the musical, helluva boss and others,
 we also really enjoy cosplay and drawing !! Fave ls members are Scott and Grian :)
 
 uhhh not sure what else to put, will be updated over time !!
