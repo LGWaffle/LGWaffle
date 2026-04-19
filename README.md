@@ -1,4 +1,4 @@
-Lizzie or Scott, either work!!
+Lizzie, Dev or Scott, either work!!
 
 16 - He/They 
 
